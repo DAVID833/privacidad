@@ -1,0 +1,2 @@
+# privacidad
+privacidad y terminos
